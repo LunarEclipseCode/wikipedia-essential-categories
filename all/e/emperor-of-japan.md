@@ -1,0 +1,139 @@
+# Emperor Of Japan
+### Asuka Period
+[Emperor Bidatsu](https://en.wikipedia.org/wiki/Emperor_Bidatsu)<br>
+[Emperor Jomei](https://en.wikipedia.org/wiki/Emperor_Jomei)<br>
+[Emperor Kinmei](https://en.wikipedia.org/wiki/Emperor_Kinmei)<br>
+[Emperor Kōbun](https://en.wikipedia.org/wiki/Emperor_K%C5%8Dbun)<br>
+[Emperor Kōtoku](https://en.wikipedia.org/wiki/Emperor_K%C5%8Dtoku)<br>
+[Emperor Monmu](https://en.wikipedia.org/wiki/Emperor_Monmu)<br>
+[Emperor Sushun](https://en.wikipedia.org/wiki/Emperor_Sushun)<br>
+[Emperor Tenji](https://en.wikipedia.org/wiki/Emperor_Tenji)<br>
+[Emperor Tenmu](https://en.wikipedia.org/wiki/Emperor_Tenmu)<br>
+[Emperor Yōmei](https://en.wikipedia.org/wiki/Emperor_Y%C5%8Dmei)<br>
+[Empress Genmei](https://en.wikipedia.org/wiki/Empress_Genmei)<br>
+[Empress Jitō](https://en.wikipedia.org/wiki/Empress_Jit%C5%8D)<br>
+[Empress Kōgyoku](https://en.wikipedia.org/wiki/Empress_K%C5%8Dgyoku)<br>
+[Empress Suiko](https://en.wikipedia.org/wiki/Empress_Suiko)<br>
+### Edo Period
+[Emperor Go-Kōmyō](https://en.wikipedia.org/wiki/Emperor_Go-K%C5%8Dmy%C5%8D)<br>
+[Emperor Go-Mizunoo](https://en.wikipedia.org/wiki/Emperor_Go-Mizunoo)<br>
+[Emperor Go-Momozono](https://en.wikipedia.org/wiki/Emperor_Go-Momozono)<br>
+[Emperor Go-Sai](https://en.wikipedia.org/wiki/Emperor_Go-Sai)<br>
+[Emperor Higashiyama](https://en.wikipedia.org/wiki/Emperor_Higashiyama)<br>
+[Emperor Kōkaku](https://en.wikipedia.org/wiki/Emperor_K%C5%8Dkaku)<br>
+[Emperor Kōmei](https://en.wikipedia.org/wiki/Emperor_K%C5%8Dmei)<br>
+[Emperor Momozono](https://en.wikipedia.org/wiki/Emperor_Momozono)<br>
+[Emperor Nakamikado](https://en.wikipedia.org/wiki/Emperor_Nakamikado)<br>
+[Emperor Ninkō](https://en.wikipedia.org/wiki/Emperor_Nink%C5%8D)<br>
+[Emperor Reigen](https://en.wikipedia.org/wiki/Emperor_Reigen)<br>
+[Emperor Sakuramachi](https://en.wikipedia.org/wiki/Emperor_Sakuramachi)<br>
+[Empress Go-Sakuramachi](https://en.wikipedia.org/wiki/Empress_Go-Sakuramachi)<br>
+[Empress Meishō](https://en.wikipedia.org/wiki/Empress_Meish%C5%8D)<br>
+### Heian Period
+[Emperor Antoku](https://en.wikipedia.org/wiki/Emperor_Antoku)<br>
+[Emperor Daigo](https://en.wikipedia.org/wiki/Emperor_Daigo)<br>
+[Emperor En'yū](https://en.wikipedia.org/wiki/Emperor_En%27y%C5%AB)<br>
+[Emperor Go-Ichijō](https://en.wikipedia.org/wiki/Emperor_Go-Ichij%C5%8D)<br>
+[Emperor Go-Reizei](https://en.wikipedia.org/wiki/Emperor_Go-Reizei)<br>
+[Emperor Go-Sanjō](https://en.wikipedia.org/wiki/Emperor_Go-Sanj%C5%8D)<br>
+[Emperor Go-Shirakawa](https://en.wikipedia.org/wiki/Emperor_Go-Shirakawa)<br>
+[Emperor Go-Suzaku](https://en.wikipedia.org/wiki/Emperor_Go-Suzaku)<br>
+[Emperor Go-Toba](https://en.wikipedia.org/wiki/Emperor_Go-Toba)<br>
+[Emperor Heizei](https://en.wikipedia.org/wiki/Emperor_Heizei)<br>
+[Emperor Horikawa](https://en.wikipedia.org/wiki/Emperor_Horikawa)<br>
+[Emperor Ichijō](https://en.wikipedia.org/wiki/Emperor_Ichij%C5%8D)<br>
+[Emperor Junna](https://en.wikipedia.org/wiki/Emperor_Junna)<br>
+[Emperor Kanmu](https://en.wikipedia.org/wiki/Emperor_Kanmu)<br>
+[Emperor Kazan](https://en.wikipedia.org/wiki/Emperor_Kazan)<br>
+[Emperor Konoe](https://en.wikipedia.org/wiki/Emperor_Konoe)<br>
+[Emperor Kōkō](https://en.wikipedia.org/wiki/Emperor_K%C5%8Dk%C5%8D)<br>
+[Emperor Montoku](https://en.wikipedia.org/wiki/Emperor_Montoku)<br>
+[Emperor Murakami](https://en.wikipedia.org/wiki/Emperor_Murakami)<br>
+[Emperor Nijō](https://en.wikipedia.org/wiki/Emperor_Nij%C5%8D)<br>
+[Emperor Ninmyō](https://en.wikipedia.org/wiki/Emperor_Ninmy%C5%8D)<br>
+[Emperor Reizei](https://en.wikipedia.org/wiki/Emperor_Reizei)<br>
+[Emperor Rokujō](https://en.wikipedia.org/wiki/Emperor_Rokuj%C5%8D)<br>
+[Emperor Saga](https://en.wikipedia.org/wiki/Emperor_Saga)<br>
+[Emperor Sanjō](https://en.wikipedia.org/wiki/Emperor_Sanj%C5%8D)<br>
+[Emperor Seiwa](https://en.wikipedia.org/wiki/Emperor_Seiwa)<br>
+[Emperor Shirakawa](https://en.wikipedia.org/wiki/Emperor_Shirakawa)<br>
+[Emperor Sutoku](https://en.wikipedia.org/wiki/Emperor_Sutoku)<br>
+[Emperor Suzaku](https://en.wikipedia.org/wiki/Emperor_Suzaku)<br>
+[Emperor Takakura](https://en.wikipedia.org/wiki/Emperor_Takakura)<br>
+[Emperor Toba](https://en.wikipedia.org/wiki/Emperor_Toba)<br>
+[Emperor Uda](https://en.wikipedia.org/wiki/Emperor_Uda)<br>
+[Emperor Yōzei](https://en.wikipedia.org/wiki/Emperor_Y%C5%8Dzei)<br>
+### Kamakura Period
+[Emperor Chūkyō](https://en.wikipedia.org/wiki/Emperor_Ch%C5%ABky%C5%8D)<br>
+[Emperor Fushimi](https://en.wikipedia.org/wiki/Emperor_Fushimi)<br>
+[Emperor Go-Daigo](https://en.wikipedia.org/wiki/Emperor_Go-Daigo)<br>
+[Emperor Go-Fukakusa](https://en.wikipedia.org/wiki/Emperor_Go-Fukakusa)<br>
+[Emperor Go-Fushimi](https://en.wikipedia.org/wiki/Emperor_Go-Fushimi)<br>
+[Emperor Go-Horikawa](https://en.wikipedia.org/wiki/Emperor_Go-Horikawa)<br>
+[Emperor Go-Nijō](https://en.wikipedia.org/wiki/Emperor_Go-Nij%C5%8D)<br>
+[Emperor Go-Saga](https://en.wikipedia.org/wiki/Emperor_Go-Saga)<br>
+[Emperor Go-Uda](https://en.wikipedia.org/wiki/Emperor_Go-Uda)<br>
+[Emperor Hanazono](https://en.wikipedia.org/wiki/Emperor_Hanazono)<br>
+[Emperor Juntoku](https://en.wikipedia.org/wiki/Emperor_Juntoku)<br>
+[Emperor Kameyama](https://en.wikipedia.org/wiki/Emperor_Kameyama)<br>
+[Emperor Shijō](https://en.wikipedia.org/wiki/Emperor_Shij%C5%8D)<br>
+[Emperor Tsuchimikado](https://en.wikipedia.org/wiki/Emperor_Tsuchimikado)<br>
+### Muromachi Period
+[Emperor Chōkei](https://en.wikipedia.org/wiki/Emperor_Ch%C5%8Dkei)<br>
+[Emperor Go-Hanazono](https://en.wikipedia.org/wiki/Emperor_Go-Hanazono)<br>
+[Emperor Go-Kameyama](https://en.wikipedia.org/wiki/Emperor_Go-Kameyama)<br>
+[Emperor Go-Kashiwabara](https://en.wikipedia.org/wiki/Emperor_Go-Kashiwabara)<br>
+[Emperor Go-Murakami](https://en.wikipedia.org/wiki/Emperor_Go-Murakami)<br>
+[Emperor Go-Nara](https://en.wikipedia.org/wiki/Emperor_Go-Nara)<br>
+[Emperor Go-Tsuchimikado](https://en.wikipedia.org/wiki/Emperor_Go-Tsuchimikado)<br>
+[Emperor Go-Yōzei](https://en.wikipedia.org/wiki/Emperor_Go-Y%C5%8Dzei)<br>
+[Emperor Shōkō](https://en.wikipedia.org/wiki/Emperor_Sh%C5%8Dk%C5%8D)<br>
+[Emperor Ōgimachi](https://en.wikipedia.org/wiki/Emperor_%C5%8Cgimachi)<br>
+### Nara Period
+[Emperor Junnin](https://en.wikipedia.org/wiki/Emperor_Junnin)<br>
+[Emperor Kōnin](https://en.wikipedia.org/wiki/Emperor_K%C5%8Dnin)<br>
+[Emperor Shōmu](https://en.wikipedia.org/wiki/Emperor_Sh%C5%8Dmu)<br>
+[Empress Genshō](https://en.wikipedia.org/wiki/Empress_Gensh%C5%8D)<br>
+[Empress Kōken](https://en.wikipedia.org/wiki/Empress_K%C5%8Dken)<br>
+### Northern Court
+[Emperor Go-En'yū](https://en.wikipedia.org/wiki/Emperor_Go-En%27y%C5%AB)<br>
+[Emperor Go-Komatsu](https://en.wikipedia.org/wiki/Emperor_Go-Komatsu)<br>
+[Emperor Go-Kōgon](https://en.wikipedia.org/wiki/Emperor_Go-K%C5%8Dgon)<br>
+[Emperor Kōgon](https://en.wikipedia.org/wiki/Emperor_K%C5%8Dgon)<br>
+[Emperor Kōmyō](https://en.wikipedia.org/wiki/Emperor_K%C5%8Dmy%C5%8D)<br>
+[Emperor Sukō](https://en.wikipedia.org/wiki/Emperor_Suk%C5%8D)<br>
+### The Current Japan
+[Akihito](https://en.wikipedia.org/wiki/Akihito)<br>
+[Emperor Meiji](https://en.wikipedia.org/wiki/Emperor_Meiji)<br>
+[Emperor Taishō](https://en.wikipedia.org/wiki/Emperor_Taish%C5%8D)<br>
+[Hirohito](https://en.wikipedia.org/wiki/Hirohito)<br>
+### Yamato Period
+[Emperor Ankan](https://en.wikipedia.org/wiki/Emperor_Ankan)<br>
+[Emperor Ankō](https://en.wikipedia.org/wiki/Emperor_Ank%C5%8D)<br>
+[Emperor Buretsu](https://en.wikipedia.org/wiki/Emperor_Buretsu)<br>
+[Emperor Hanzei](https://en.wikipedia.org/wiki/Emperor_Hanzei)<br>
+[Emperor Ingyō](https://en.wikipedia.org/wiki/Emperor_Ingy%C5%8D)<br>
+[Emperor Keitai](https://en.wikipedia.org/wiki/Emperor_Keitai)<br>
+[Emperor Kenzō](https://en.wikipedia.org/wiki/Emperor_Kenz%C5%8D)<br>
+[Emperor Ninken](https://en.wikipedia.org/wiki/Emperor_Ninken)<br>
+[Emperor Richū](https://en.wikipedia.org/wiki/Emperor_Rich%C5%AB)<br>
+[Emperor Seinei](https://en.wikipedia.org/wiki/Emperor_Seinei)<br>
+[Emperor Senka](https://en.wikipedia.org/wiki/Emperor_Senka)<br>
+[Emperor Yūryaku](https://en.wikipedia.org/wiki/Emperor_Y%C5%ABryaku)<br>
+### Yayoi Period
+[Emperor Annei](https://en.wikipedia.org/wiki/Emperor_Annei)<br>
+[Emperor Chūai](https://en.wikipedia.org/wiki/Emperor_Ch%C5%ABai)<br>
+[Emperor Itoku](https://en.wikipedia.org/wiki/Emperor_Itoku)<br>
+[Emperor Jimmu](https://en.wikipedia.org/wiki/Emperor_Jimmu)<br>
+[Emperor Kaika](https://en.wikipedia.org/wiki/Emperor_Kaika)<br>
+[Emperor Keikō](https://en.wikipedia.org/wiki/Emperor_Keik%C5%8D)<br>
+[Emperor Kōan](https://en.wikipedia.org/wiki/Emperor_K%C5%8Dan)<br>
+[Emperor Kōgen](https://en.wikipedia.org/wiki/Emperor_K%C5%8Dgen)<br>
+[Emperor Kōrei](https://en.wikipedia.org/wiki/Emperor_K%C5%8Drei)<br>
+[Emperor Kōshō](https://en.wikipedia.org/wiki/Emperor_K%C5%8Dsh%C5%8D)<br>
+[Emperor Nintoku](https://en.wikipedia.org/wiki/Emperor_Nintoku)<br>
+[Emperor Seimu](https://en.wikipedia.org/wiki/Emperor_Seimu)<br>
+[Emperor Suinin](https://en.wikipedia.org/wiki/Emperor_Suinin)<br>
+[Emperor Suizei](https://en.wikipedia.org/wiki/Emperor_Suizei)<br>
+[Emperor Sujin](https://en.wikipedia.org/wiki/Emperor_Sujin)<br>
+[Emperor Ōjin](https://en.wikipedia.org/wiki/Emperor_%C5%8Cjin)<br>
